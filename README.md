@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @salah-png
+- 👀 I’m interested in learning and self-development
+- 🌱 I’m currently in commerce and marketing
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: aggressive learning can make you crazy
